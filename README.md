@@ -1,1 +1,1 @@
-# Wahyu# Duyat
+# Wahyu
